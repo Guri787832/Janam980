@@ -1,2 +1,5 @@
 # Janam980
-H
+santokh
+kashmeer
+akash
+JFK 
